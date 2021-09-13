@@ -1,0 +1,1 @@
+# 8-sinif-fen-bilimleri-soru-bankasi-32
